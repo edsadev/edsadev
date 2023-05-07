@@ -2,7 +2,7 @@
 
 As a person, I am dynamic, efficient, and highly communicative, with a passion for technology and a continuous thirst for learning. My ability to work collaboratively and deliver high-quality work under budget and on time makes me an asset to any project.
 
-If you're interested in my profile and want to collaborate on a project, feel free to contact me at e.salamanca@edsadev.com or send me a direct message, and I'll be happy to get in touch.✨
+If you're interested in my profile and want to collaborate on a project, feel free to contact me at e.salamanca@edsadev.com, I'll be happy to get in touch.✨
 
 "At the end, I strive to make a positive impact on the present and future through simple actions as a human being." 🚀
 
